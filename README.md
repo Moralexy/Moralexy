@@ -4,5 +4,5 @@
 - 👯  I am passionate about meeting people across the globe who are passionate about telling stories with data with the aim of improving operations, safety and profits for businesses across industries
 - 🤔 I’m looking for help with getting and collaborating on congnate projects to build a stellar career!
 - 💬 Ask me about domain knowledge data visualization and storytelling and I would be glad to engage.
-- 📫 You can reach me through ``linkedin.com/in/oloruntoba-moritiwon-273428b7`` and the verified mail on my profile.
+- 📫 You can reach me through ``linkedin.com/in/oloruntoba-moritiwon`` and the verified mail on my profile.
 - ⚡ **Can I meet you?**
